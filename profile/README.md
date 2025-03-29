@@ -18,7 +18,7 @@ Free Rolls can be claimed in different ways. For example, they may be given as a
 
 When you start a game of Board Kings, you’ll have the chance to roll the dice. Normally, you would need to spend Bucks to do this, but with Free Rolls, you can roll without the cost. Each Free Roll provides you with a set of dice rolls. For instance, you might get one, two, or even three Free Rolls per day, depending on the current game update or event.
 
-## How to Get Free Rolls in January 2025?
+## How to Get Free Rolls in March 2025?
 
 In January 2025, there are several ways to earn Free Rolls in Board Kings. Players can take advantage of the game’s events, promotions, and daily bonuses. Here are some of the ways you can get Free Rolls this month:
 
@@ -26,7 +26,7 @@ In January 2025, there are several ways to earn Free Rolls in Board Kings. Playe
 One of the most common ways to get Free Rolls is through the daily log-in rewards. Board Kings often gives out Free Rolls as part of a player’s daily log-in bonus. The more days you log in, the better your chances of getting Free Rolls. This is an easy and consistent way to get some extra dice rolls without spending your Bucks.
 
 ### 2. Special Events and Challenges
-Board Kings often runs special events throughout the year. In January 2025, there may be specific events focused on getting Free Rolls. These events could involve completing certain tasks or challenges. For example, you may need to collect a certain number of items, upgrade specific buildings, or compete in special challenges to earn Free Rolls.
+Board Kings often runs special events throughout the year. In March 2025, there may be specific events focused on getting Free Rolls. These events could involve completing certain tasks or challenges. For example, you may need to collect a certain number of items, upgrade specific buildings, or compete in special challenges to earn Free Rolls.
 
 ### 3. Inviting Friends
 Another way to earn Free Rolls is by inviting friends to play the game. When a friend joins Board Kings using your referral code, you may receive a set of Free Rolls as a reward. This not only gives you extra rolls but also helps expand the Board Kings community.
